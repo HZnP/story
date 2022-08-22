@@ -1,0 +1,2 @@
+# story
+something interesting ideas
